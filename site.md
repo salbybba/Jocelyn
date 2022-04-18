@@ -9,7 +9,7 @@
 * Look at how cute you are 
 ![](IMG_1397.png)
 
-## You're just my favorite person ever
+**You're just my favorite person ever**
 
 ## Sunday, April 16
 
