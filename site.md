@@ -13,7 +13,7 @@
 
 ## Sunday, April 16
 
-I wish we spent easter together, I miss your pretty face. I can't wait for my birthday because we'll get to spend time togther. **I LOVE YOU**
+I wish we spent easter together, I miss your pretty face. I can't wait for our trip to LA in a week to see Penny and go to Knott's. And then we have Sun God and my birthday. **I LOVE YOU.**
 
 ![](IMG_1600.jpg)
 
