@@ -21,7 +21,7 @@ I wish we spent easter together, I miss your pretty face. I can't wait for our t
 
 We went paddleboarding in Texas!! I can't wait to go back there with you. Look how cute you were on the water <3
 
-![](
+![](IMG_1992.HEIC)
 
 ## Thursday, June 2 
 
