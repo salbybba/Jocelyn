@@ -17,3 +17,8 @@ I wish we spent easter together, I miss your pretty face. I can't wait for our t
 
 ![](IMG_1600.jpg)
 
+## Thursday, June 2 
+
+You're mad at me today and need space. I miss you and I always think about you. I love you, baby. 
+
+![](
