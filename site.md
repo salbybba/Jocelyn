@@ -5,7 +5,7 @@
 * You make me laugh harder than anybody ever
 * You turned me gay
 * Now I get to say that I have the prettiest girlfriend in the world. **AND IT'S TRUE**?!??
-* We have three children together
+* We have three children together... Actually, now we only have one...
 * Look at how cute you are 
 ![](mybaby.png)
 
